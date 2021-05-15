@@ -1,1 +1,1 @@
-# Projekt_DP
+Szymon Kasiorek i Szymon Kasiorek (robiłem projekt zadanie sam )
